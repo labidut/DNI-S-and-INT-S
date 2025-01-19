@@ -29,3 +29,6 @@ ________________________________________________________________________________
 -  im chronically online
 -  i have moodswings, please dont think i hate you if i ignore you :')
 -  i automatically think were friends if you talk too me often
+-  i dont interact first
+-  i can be awkward sometimes
+-  i can be dry or not depending on how much i like/comfortable you
