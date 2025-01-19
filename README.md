@@ -31,4 +31,4 @@ ________________________________________________________________________________
 -  i automatically think were friends if you talk too me often
 -  i dont interact first
 -  i can be awkward sometimes
--  i can be dry or not depending on how much i like/comfortable you
+-  i can be dry or not depending on how much [ i like/comfortable with ] you
